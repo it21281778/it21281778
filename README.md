@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @MasterLWA. This is my university Accountn👨🏻‍💻
+- 👋 Hi, I’m @MasterLWA. This is my university Account👨🏻‍💻
